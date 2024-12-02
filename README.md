@@ -1,0 +1,2 @@
+# aaaaaaaaaaa
+equilibrio quimico
